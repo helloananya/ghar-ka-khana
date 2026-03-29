@@ -196,7 +196,7 @@ This project is open source and available for personal and commercial use.
 
 ## 👨‍💻 Support
 
-For questions or support, please reach out through the contact form on the website or email at orders@gharkakhana.com
+For questions or support, please reach out through the contact form on the website or email at gharkakhana570@gmail.com
 
 ---
 
